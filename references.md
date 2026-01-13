@@ -11,7 +11,7 @@ All of Tissot's works used on this site were retrieved from the [Internet Archiv
 
 "How to Pray the Rosary." Praying Latin. Accessed 02 October 2025, [prayinglatin.com/how-to-pray-the-rosary/](https://www.prayinglatin.com/how-to-pray-the-rosary/)
 
-Douay-Rheims Bible. Saint Benedict Press/TAN Books, 2009. The New Testament first translated from the Latin Vulgate and published by the English College at Rheims, 1582. Imprimatur: James Cardinal Gibbons, Archbishop of Baltimore, September 1, 1899.
+Douay-Rheims Bible. The New Testament first translated from the Latin Vulgate and published by the English College at Rheims, 1582. Imprimatur: James Cardinal Gibbons, Archbishop of Baltimore, September 1, 1899.
 
 ["Douay-Rheims Bible Online"](https://drbo.org)
 
